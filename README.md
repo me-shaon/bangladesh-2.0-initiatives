@@ -18,7 +18,7 @@
 - [আমরা বিচার চাই!](https://www.amrabicharchai.com)
 - [চিনে রাখুন](https://chinerakhun.com)
 - [ReformBangla](https://reformbangla.com)
-
+- [Bangladesh Regime (2014-2024) Human Rights Archive](https://docs.google.com/document/d/12Hx5GUvI9xpKhn6-m3Slxokqrw1MS4Fb-3Zf9Hd7p8A)
 
 ### সামাজিক সমস্যা সমাধানের ডিজিটাল প্ল্যাটফর্মসমূহ
 
