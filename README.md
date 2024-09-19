@@ -19,12 +19,18 @@
 - [চিনে রাখুন](https://chinerakhun.com)
 - [ReformBangla](https://reformbangla.com)
 - [Bangladesh Regime (2014-2024) Human Rights Archive](https://docs.google.com/document/d/12Hx5GUvI9xpKhn6-m3Slxokqrw1MS4Fb-3Zf9Hd7p8A)
+- [আসাদের শার্ট - Asader Shirt](https://asadershirt.com)
+- [The Inquilab](https://theinquilab.com)
+- [মুক্তি ২৪](https://mukti24.com)
+- [শহীদ মুগ্ধ - Shohid Mugdho](https://shohidmugdho.com)
+- [শহীদরা](https://shohidra.com)
 
 ### সামাজিক সমস্যা সমাধানের ডিজিটাল প্ল্যাটফর্মসমূহ
 
 - [অভিযোগ](https://www.ovijog.net)
 - [প্রতিরোধ : রিয়েল-টাইম কমিউনিটি সুরক্ষা প্ল্যাটফর্ম](https://protirodh.net)
 - [টহল : নিরাপত্তা প্রহরী আপনার ফোনে](https://www.toholapp.com)
+- [উদ্ধার](https://uddharbd.org)
 - [জনগণের দাবি](https://jonogon.org)
 - [নাগরিক হেল্প](https://nagorikhelp.com/)
 - [Reverse Brain Drain: Expats who want to help rebuild Bangladesh](https://reversebraindrainbd.com)
@@ -32,3 +38,5 @@
 - [Deshito | দেশী পণ্য খোঁজার App](https://play.google.com/store/apps/details?id=org.deshito.user)
 - [Boycott Indian product](https://indiaout.today)
 - [justURBAN / ন্যায্যনগর](https://www.justurban.net)
+- [দুর্নীতিবাজ : বাংলাদেশের জনগন কর্তৃক দুর্নীতিবাজদের তালিকা](https://durnitibaz.com)
+- [Bangladesh2.0](https://www.bangladesh2o.com)
